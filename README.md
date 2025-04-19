@@ -1,6 +1,6 @@
 <h1>🔥 Madridbet - Premium Bahis Dünyasında Kazancınızı Zirveye Taşıyın! 🔥</h1>
  
- <a href="https://l24.im/LbOMiFI" title="Madridbet Resmi Adresi">
+ <a href="https://l24.im/0ndSjaT" title="Madridbet Resmi Adresi">
    <img src="https://i.ibb.co/Rphw47Mn/github-2.png" alt="Madridbet Bahis" style="max-width: 100%; border: 3px solid #e63946; border-radius: 15px; box-shadow: 0px 0px 20px rgba(230, 57, 70, 0.5);">
  </a>
  
